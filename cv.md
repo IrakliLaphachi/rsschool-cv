@@ -2,6 +2,7 @@
 
 ## Contacts:
 
+- Linkedin: https://www.linkedin.com/in/irakli-laphachi-1a6b84292/
 - E-mail: iraklilaphachi@gmail.com
 - Tel: +995 551 58 01 20
 - Discord: iraklilaphachi
